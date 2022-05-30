@@ -3,6 +3,7 @@
 ## 导 航 永 久 域 名：http://bba520.vip (海外用户)
 
 ## 访问地址(移动用户多试几次)：
+## http://svipssr002.top/
 ## http://bba44.com
 ## http://bba08.com
 ## http://bba789.com
